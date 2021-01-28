@@ -1,0 +1,1 @@
+This recipe is for a super easy powdered sugar glaze that almost anyone can make! You can use this for glazed donuts, cinnamon buns, to dip in fruits(strawberries work very well) or vegetables, eat with pancakes/waffles, or anything you want! Add a bit of cocoa powder if you want to make it chocolate--if you want to, you can even make edible glue by adding less water!
